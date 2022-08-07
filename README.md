@@ -1,0 +1,2 @@
+# FBA
+PRIVET SCRIPT 🥀
